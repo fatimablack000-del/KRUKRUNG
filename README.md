@@ -1,4 +1,4 @@
-![Design and Development](Photo on 8-16-25 at 3.23 PM.jpg).
+> ![Design and Development](Photo on 8-16-25 at 3.23 PM.jpg).
 
 ###
 
